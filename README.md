@@ -1,2 +1,0 @@
-# webes
-gepre kell
